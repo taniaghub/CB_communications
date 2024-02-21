@@ -1,0 +1,1 @@
+Suggested citation: Yukhymenko, T., Sorochan O. (2024). Impact of the Central Bank's Communication on Macrofinancial Outcomes. Working Paper, 01-2024. Geneva: Graduate Institute of International and Development Studies. Retrieved from https://repec.graduateinstitute.ch/pdfs/Working_papers/HEIDWP01-2024.pdf
